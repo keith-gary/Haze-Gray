@@ -1,1 +1,1 @@
-# Haze-Gray
+Mechanical Engineer at GE Global Research
